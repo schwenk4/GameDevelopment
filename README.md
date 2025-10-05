@@ -5,3 +5,5 @@ https://youtu.be/_Mqrt3CQhO4
 https://youtu.be/Qui6ZMjx2GU
 3- Combat Kitchen- This is a game where you make sandwiches while fighting off angry customers
 https://youtu.be/qcf2nT3A7mE
+4- Fruity Maze 3D- This is a maze game where you collect fruits and powerups to help you
+https://youtu.be/_7agEcGDwa0 
